@@ -4,18 +4,23 @@
 
 ## 不花冤枉钱
 
-只是临时需要用一下，不想花30块开一整个月的会员？
+临时用一下，不想花30块开一整个月的会员？
 
-为了下载东西临时开了个月费会员，但是下完基本就没用了？
+以为经常要用，开了年费会员，但其实用到的次数屈指可数？
 
-以为自己要经常用，开了年费会员，但其实用到的次数屈指可数？
+为什么要为用不到的会员时长付费呢？
+
+打开[2yuansvip.com](https://2yuansvip.com/) 从此只为自己用得到的会员时长买单，不再支付额外溢价！
 
 
-为什么要为用不到的会员时长买单呢？
+## 用户评价
+顶一个，很靠谱，在他这买了好多次了 (https://v2ex.com/t/722367#reply19)
 
-2yuansvip为你提供一个按需付费的选择！只为自己用得到的服务付费，不再支付额外溢价！
+我也来支持下，买过 3 个月 (https://v2ex.com/t/722367#reply19)
 
-## 限速问题
-2yuansvip 用百度账号登录，不是市面上泛滥的那些微博登录账号，每个号都是人工手动充值的，保证不会限速，限速提供全额退款售后
+买过lz的(原来那个帖子找不到了)  确实不错  稳的狠(https://www.chiphell.com/forum.php?mod=redirect&goto=findpost&ptid=2262154&pid=45900104)
 
+不错的速度(https://www.chiphell.com/forum.php?mod=redirect&goto=findpost&ptid=2262154&pid=45932757)
+
+用过，稳定好用。帮楼主顶一下(https://www.chiphell.com/forum.php?mod=redirect&goto=findpost&ptid=2262154&pid=45942154)
 
