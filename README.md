@@ -14,13 +14,13 @@
 
 
 ## 用户评价
-顶一个，很靠谱，在他这买了好多次了 (https://v2ex.com/t/722367#reply19)
+顶一个，很靠谱，在他这买了好多次了 [yangheng4922 ](https://v2ex.com/t/722367#reply19)
 
-我也来支持下，买过 3 个月 (https://v2ex.com/t/722367#reply19)
+我也来支持下，买过 3 个月 [motan ] (https://v2ex.com/t/722367#reply19)
 
-买过lz的(原来那个帖子找不到了)  确实不错  稳的狠(https://www.chiphell.com/forum.php?mod=redirect&goto=findpost&ptid=2262154&pid=45900104)
+买过lz的(原来那个帖子找不到了)  确实不错  稳的狠 [阿飘] (https://www.chiphell.com/forum.php?mod=redirect&goto=findpost&ptid=2262154&pid=45900104)
 
 不错的速度(https://www.chiphell.com/forum.php?mod=redirect&goto=findpost&ptid=2262154&pid=45932757)
 
-用过，稳定好用。帮楼主顶一下(https://www.chiphell.com/forum.php?mod=redirect&goto=findpost&ptid=2262154&pid=45942154)
+用过，稳定好用。帮楼主顶一下  [wuyi316904](https://www.chiphell.com/forum.php?mod=redirect&goto=findpost&ptid=2262154&pid=45942154)
 
