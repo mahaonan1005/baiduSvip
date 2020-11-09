@@ -1,6 +1,5 @@
 # 百度网盘超级会员Svip出租 一天2元 一月6元
 
-自助下单地址 [2yuansvip.com](https://2yuansvip.com/)
 
 ![不花冤枉钱](https://i.loli.net/2020/11/09/hinCsuwUDP48mVA.png)
 
